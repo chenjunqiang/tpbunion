@@ -18,13 +18,13 @@ HI,i have already finish the site.please add to the proxy list. thanks;
 
 -----update time : 2013/09/01 -----
 
- Address 1 : http://adf.ly/Ux1j1
+ Address 1 : http://www.tpbunion.com/
 
- Address 2 : http://adf.ly/Ux1xD  
+ Address 2 : http://www.piratebayunion.com/
 
- Address 3 : http://adf.ly/Ux20S  
+ Address 3 : http://www.51tsj.com/ 
 
- Address 4 : http://adf.ly/Ux23T  
+ Address 4 : http://quluxingba.info/  
 
  === * Notice : When u Press the link : Please wait 5 seconds, chose to skill AD;  Thanks Very much *===
 
