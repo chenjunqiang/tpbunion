@@ -26,7 +26,5 @@ HI,i have already finish the site.please add to the proxy list. thanks;
 
  Address 4 : http://quluxingba.info/  
 
- === * Notice : When u Press the link : Please wait 5 seconds, chose to skill AD;  Thanks Very much *===
-
 
 Keyword:Proxy, proxybay, thepiratebay, ThePirateBay, mirrors, PirateBayProxy, Unblocked, Fast, Safe, Reliable, anti-censorship, unblock, list, uk
